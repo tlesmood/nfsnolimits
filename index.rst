@@ -17,7 +17,7 @@ NEED FOR SPEED NO LIMITS HACK UNLIMITED GOLD 2021 WORKING
 How to get free Gold / cash in Need for Speed No Limits in 2021?
 
 
-Once the site opens, enter your toomics username/email address and continue
+Once the site opens, enter your username/email address and continue
 
 Now, you tap on "Allow" when the system asks permission to download and install the app from other sources.
 
